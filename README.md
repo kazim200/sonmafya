@@ -1,0 +1,2 @@
+# sonmafya
+kod girme
